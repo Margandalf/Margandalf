@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Margandalf
+- 👋 Hi, I’m Margaret
 - 👀 I’m interested in graphic design
 - 📫 How to reach me? Discord *margaret2179*
 - ⚡ Fun fact: Turtles have full body armor
